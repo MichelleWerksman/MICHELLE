@@ -1,0 +1,2 @@
+# MICHELLE
+I'm a MUM, MESSIANIC JEW and ASPIRING MOTIVATIONAL SPEAKER with the objective to bring the GOSPEL of almighty JESHUA MESSIAH to the WORLD
